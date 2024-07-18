@@ -2,7 +2,7 @@
 
 <img src="https://media1.tenor.com/m/W45Dd852nTEAAAAC/hoang2910-boss.gif" />
 
-<img src="https://media.tenor.com/zDjjmYh784gAAAAi/diwali.gif" width="100" />
+<img src="https://media.tenor.com/zDjjmYh784gAAAAi/diwali.gif" />
 
 # ...Diyaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
 
